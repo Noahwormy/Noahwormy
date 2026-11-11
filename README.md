@@ -28,7 +28,9 @@ I am also a very shy person so you will most likely need to talk first!!
 - Travis Rapid (Tmirb)
 - Kusuriuri of Ri (Mononoke)
 - Seesay (Grace)
+
 Im fine with doubles!
+
 Will be updated over time.
 
 𓆩♡𓆪Likes𓆩♡𓆪
