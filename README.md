@@ -42,7 +42,7 @@ Animal Crossing, Fnaf, Aggretsuko, Gachiakuta, Okami, Little Big Planet, Vocaloi
 
 - If **under** the age of 13, If **over** the age of 21. (I will only talk too you if necessary.) 
 
-- **IF IN ANY OF THESE FANDOMS/SUPPORT** Your boyfriend, hazbin hotel / helluva boss,
+- **IF IN ANY OF THESE FANDOMS/SUPPORT** Your boyfriend, If you support vivzepop,
 freak circus, tamers content, the coffin of andy and leyley. alfreds playhouse, kaiju paradise, changed,
 Psycho cuties. 
 
