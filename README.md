@@ -1,4 +1,5 @@
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+
 ⋆˖⁺‧₊☽Name/Nickname☾₊‧⁺˖⋆
 - Noah, *Andrew, Travis Rapid, Seesay, Ri.* 
 
@@ -12,6 +13,7 @@
 - -18
 
 ⋆｡‧˚ʚ Things you should know! ɞ˚‧｡⋆
+
 -I am Diagnosed with ADHD, Autism, and severe social anxiety! 
 Please be patient with me as I also have memory gaps and forget things alot!
 I am also a very shy person so you will most likely need to talk first!!
@@ -19,11 +21,14 @@ I am also a very shy person so you will most likely need to talk first!!
 ˚　　　　✦　　　.　　. 🪐　 ˚　.　　　　 　　.　　　　　　 ✦　　　.　　˚　🌒　　　　. ✦ 　🌍  
  　　.  　 　　　˚　　　　　*　　 　　✦　　　.　　.　　　✦　　˚ 　　　 　　˚　.　*　　. 　˚　　.
 ☠︎︎EXTRA☠︎︎
+
 *ੈ✩‧₊˚Fictionkins*ੈ✩‧₊˚
+
 - Andrew (Bad Things)
 - Travis Rapid (Tmirb)
 - Kusuriuri of Ri (Mononoke)
 - Seesay (Grace)
+Im fine with doubles!
 Will be updated over time.
 
 𓆩♡𓆪Likes𓆩♡𓆪
@@ -32,6 +37,7 @@ Sally face, Grace, Phighting, Dandys world, Shadow of the Colossus, Pokemon,
 Animal Crossing, Fnaf, Aggretsuko, Gachiakuta, Okami, Little Big Planet, Vocaloid.
 
 ✮ ⋆ ˚｡⚠︎⛓DNI⛓⚠︎｡⋆° ✩
+
 - If **under** the age of 13, If **over** the age of 21. (I will only talk too you if necessary.) 
 
 - **IF IN ANY OF THESE FANDOMS/SUPPORT** Your boyfriend, hazbin hotel / helluva boss,
