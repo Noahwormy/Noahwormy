@@ -47,7 +47,7 @@ Animal Crossing, Fnaf, Aggretsuko, Gachiakuta, Okami, Little Big Planet, Vocaloi
 freak circus, tamers content, the coffin of andy and leyley. alfreds playhouse, kaiju paradise, changed,
 Psycho cuties. 
 
-- DarkShipping, proshipping, any illegal ships. Anything problematic Tbh. Racism, Sexism, any discrimination. (If you see me shipping characters its usually an au or me and my partners fictionkins.)  
+- DarkShipping, proshipping, any illegal ships. Anything problematic Tbh. Racism, Sexism, any discrimination. (If you see me shipping characters its usually an au or me and my partners fictionkins.)  Scratches ass
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
